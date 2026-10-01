@@ -206,4 +206,4 @@ Free Video Dub is a complete free version with all features and updates included
 Start editing your videos effortlessly today! Download Free Video Dub for Windows and enjoy all its powerful features completely free!
 
 ---
-**Last updated:** 2026-10-01 14:13:46 UTC
+**Last updated:** 2026-10-01 20:08:30 UTC
